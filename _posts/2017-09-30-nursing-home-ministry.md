@@ -9,7 +9,7 @@ permalink: >
 published: true
 post_date: 2017-09-30 16:43:13
 ---
-<h1>A rotation of young men preaching the Word of God to to our seniors at Ganton Manor in Jackson, Michigan</h1>
+<h1>A rotation of young men preaching the Word of God to our seniors at Ganton Manor in Jackson, Michigan</h1>
 
 <h2>Ganton Manor is located at 5025 Ann Arbor Rd, Jackson Michigan 49201 and we invite anyone to attend services on Saturday morning at 10am</h2>
 
