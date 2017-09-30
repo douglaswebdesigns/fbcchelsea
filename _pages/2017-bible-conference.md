@@ -1,0 +1,14 @@
+---
+ID: 6552
+post_title: 2017 Bible Conference
+author: pdouglasFBC
+post_excerpt: ""
+layout: page
+permalink: >
+  http://fbcchelsea.org/2017-bible-conference/
+published: true
+post_date: 2017-07-18 12:16:03
+---
+<p><img class="aligncenter size-full wp-image-6553" src="http://fbcchelsea.org/wp-content/uploads/2017/07/I-Am-620x250.jpg" alt="i am of Christ 2017 Bible Conference Faith Baptist Church img" width="1240" height="500" /></p><p>&nbsp;</p><h2><strong>Join us Monday, Tuesday, Wednesday &amp; Thursday for the Faith Baptist Church 2017 Bible Conference!</strong></h2><h2>This years schedule:</h2><h3 style="text-align: left;"><strong>Monday: </strong> Travis Alltop "I am the bread of life" John 6:35</h3><h3 style="text-align: left;"><iframe src="https://www.youtube.com/embed/laRddOW-ks4?rel=0" width="560" height="315" frameborder="0" allowfullscreen="allowfullscreen"></iframe></h3><h3>Mark Hiltibidal "I am the light of the world" John 8:12</h3><p style="text-align: left;"><iframe src="https://www.youtube.com/embed/whBj7PQl2nk?rel=0" width="560" height="315" frameborder="0" allowfullscreen="allowfullscreen"></iframe></p><hr /><h1><strong>Tuesday</strong></h1><h3>Randy Newcomber "I Am The Door" John 10: 7,9</h3><h3 style="text-align: left;"><iframe src="https://www.youtube.com/embed/KqGkuZzSGJQ?rel=0" width="560" height="315" frameborder="0" allowfullscreen="allowfullscreen"></iframe></h3><h3>Travis Altop "I Am The Good Shepherd"</h3><h3 style="text-align: left;"><iframe src="https://www.youtube.com/embed/xsgvTI5MvWE?rel=0" width="560" height="315" frameborder="0" allowfullscreen="allowfullscreen"></iframe></h3><hr /><h1><strong>Wednesday</strong></h1><h3>James Knox "I Am The Resurrection And The Life" John 11:25</h3><h3 style="text-align: left;"><iframe src="https://www.youtube.com/embed/Yc669897AGc?rel=0" width="560" height="315" frameborder="0" allowfullscreen="allowfullscreen"></iframe></h3><h3>Randy Newcomber "I Am The True Vine" John 15: 1,5</h3><h3 style="text-align: left;"><iframe src="https://www.youtube.com/embed/NIhN5IX5T5A?rel=0" width="560" height="315" frameborder="0" allowfullscreen="allowfullscreen"></iframe></h3><hr /><h1><strong>Thursday</strong></h1><h3>Mark Hiltibidal "I am the Truth, The Way, and The Life" John 14:6</h3><h3 style="text-align: left;"><iframe src="https://www.youtube.com/embed/pV46K_00rDs?rel=0" width="560" height="315" frameborder="0" allowfullscreen="allowfullscreen"></iframe></h3><h3>James Knox "I Am The Root And Offspring Of David, And The Bright Morning Star" Revelation 22:16</h3><h3 style="text-align: left;"><iframe src="https://www.youtube.com/embed/qkVS0pvPbMY?rel=0" width="560" height="315" frameborder="0" allowfullscreen="allowfullscreen"></iframe></h3><hr />
+<h3>2017 Bible Conference Playlist</h3>
+<h3 style="text-align: left;">[embed]https://www.youtube.com/playlist?list=PLVf-FYDdY596RKmBTLM2hDYSaet6DYeW8?rel=0[/embed]</h3>

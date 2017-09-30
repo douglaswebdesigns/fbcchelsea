@@ -1,0 +1,12 @@
+---
+ID: 1329
+post_title: Phil and Sarah Taylor Prayer Letter
+author: Pastor Summers
+post_excerpt: ""
+layout: post
+permalink: >
+  http://fbcchelsea.org/phil-and-sarah-taylor-prayer-letter/
+published: true
+post_date: 2015-05-12 16:37:40
+---
+<p>Dear Friends, <br /> <br />   A few things have changed in our lives these past few weeks. On April 15, 2015 at 12:07pm we welcomed Hudson G. Taylor into our family. He weighed 8 lbs and 12 oz. He was 21 inches long. Our lives will never be the same, he has already stolen our hearts. We are so thankful that God allowed us to have him. Many people have asked us what the "G" stands for in his name. Both Sarah and I have been blessed with a godly heritage lead by our fathers. Both of their names start with G, Sarah's dad Guy and my dad Gary. So to honor them we have given Hudson the initial G. <br />      The ministry of Seedline is doing well. All of our guys are staying busy out on the road. We have been off the road for six weeks due to the baby and Sarah not being able to travel. But we are back on the road as of this week as a family of three for the first time. Please pray for us this summer there is a lot going on. Our schedule is packed. As well we will have a couple of interns with us this summer. We have projects in Michigan, Ohio, Wisconsin, Georgia, Pennsylvania, New York, Kansas and Indiana. <br />   In 2010 Sarah and I were able to go and take a group to the Vancouver Winter Olympics and pass out John and Romans. To be honest it was one of the hardest missions trips we have taken. You would hand people a John and Romans and they would hand it back. We didn't see the immediate fruit from our labor like we had in other places. Recently I was taking to a friend, who is involved in Seedline, gave testimony about his trip to Canada. He was in a church where a lady approached him and told him the story of how she got saved. She said it was all because of a John and Romans she had received during the Winter Olympics. Praise the Lord! God allowed us to hear that testimony five years after we had been there. We have no idea the impact that the John and Romans have until we get to heaven. Thank you for your involvement in our ministry. This fruit was added to your account. Thank you for your faithful support and prayers. Without you we couldn't do what we do. <br /> Your servants in Christ,<br /> Phil and Sarah Taylor<br /> Bearing Precious Seed/Seedline</p>

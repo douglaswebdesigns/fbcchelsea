@@ -1,0 +1,12 @@
+---
+ID: 2152
+post_title: 2017 Fall Fellowship October 3rd – 5th
+author: Pastor Summers
+post_excerpt: ""
+layout: post
+permalink: >
+  http://fbcchelsea.org/fall-fellowship-october/
+published: true
+post_date: 2015-07-24 19:13:40
+---
+<h1><em><strong><span class="st">This event is considered one of the most anticipated and spiritually valuable visits of the year.</span></strong></em></h1><p>Come fellowship with us on October 3<sup>rd</sup>, 4<sup>th</sup> and 5<sup>th</sup> for three powerful days of special services.</p><p>Tuesday night October 3<sup>rd</sup> is the first service at 6:30pm. The following two days, Wednesday and Thursday; morning service begins at 9:30am evening services begin at 6:30pm.</p><h2>Everyone is welcome and encouraged, to attend the Fall Fellowship services as well as the scheduled meals.</h2><p>Schedule:</p><table style="height: 145px;" width="340"><tbody><tr><td><strong>Tuesday       <br /></strong></td><td> </td></tr><tr><td> </td><td>5:00 Dinner</td></tr><tr><td> </td><td>6:30 Service</td></tr><tr><td> </td><td>Refreshments &amp; Fellowship After Service</td></tr></tbody></table><table style="height: 303px;" width="340"><tbody><tr><td><strong>Wednesday</strong></td><td> </td></tr><tr><td> </td><td>8:30am Breakfast</td></tr><tr><td> </td><td>9:30am Service</td></tr><tr><td> </td><td>12:15 Lunch</td></tr><tr><td> </td><td>5:00 Dinner</td></tr><tr><td> </td><td>6:30 Service</td></tr><tr><td> </td><td>Refreshments &amp; Fellowship After Service</td></tr></tbody></table><table style="height: 306px;" width="340"><tbody><tr><td><strong>Thursday     <br /></strong></td><td> </td></tr><tr><td> </td><td>8:30am Breakfast</td></tr><tr><td> </td><td>9:30am Service</td></tr><tr><td> </td><td>12:15 Lunch</td></tr><tr><td> </td><td>5:00 Dinner</td></tr><tr><td> </td><td>6:30 Service</td></tr><tr><td> </td><td>Refreshments &amp; Fellowship After Service</td></tr></tbody></table><blockquote><p>If lodging is needed, please call the church office to reserve a room. The church receives a discounted rate of $65.99 + tax at Comfort Inn Hotel and Conference Center.</p></blockquote><p>-please contact Pastor Summers at <a href="tel:+1 (734) 255-3650">+1 (734) 255-3650</a></p><p>From October 2016 Pastor Jason Summers:</p><p>https://www.youtube.com/watch?v=mWeV04_LrHo</p><p>&nbsp;</p><p>&nbsp;</p>

@@ -1,0 +1,11 @@
+---
+ID: 548
+post_title: Church History
+author: pdouglasFBC
+post_excerpt: ""
+layout: page
+permalink: http://fbcchelsea.org/church-history/
+published: true
+post_date: 2015-04-10 11:54:50
+---
+<p>Jerry and Elaine Whitaker were trying to find a church for their family to attend that was close to home. After visiting many churches in the area, they began to see there weren’t any in the area they believed God would have them. After much prayer they believed God was leading them to start a church in the small but growing town of Chelsea, Michigan.</p><p>Pastor Jack T. Story was asked to help start the church. Although he lived 30 miles away, he was willing to help in whatever way he could.</p><p>The first service was held on the last Sunday in February, 1996 at 3:00 P.M. Many friends of the Pastor and the Whitakers came out to visit that day. The following Sunday was the crowd that would press on with the work, 9 people (2 families).</p><p>The church began to grow slowly and was eventually able to hold Sunday morning and evening services. In the small crowd that attended, there was a sweet fellowship among the people and a desire to see growth. It seemed everyone that would begin to attend regularly would invite more to come with them.</p><p>Souls of people began to be touched by the gospel that was preached, and the power of God began to save souls.</p><p>Many were baptized and joined the church in the first few years. This pushed the church to keep going.</p><p>After seven years of meeting at the starting location of the church, the “Faith In Action Building”, the church had exceeded the capacity of the building and was blessed with the opportunity to build a new building on the corner of I-94 and Kalmbach Rd. The Lord blessed with 14 beautiful acres and a little white church with a steeple on top. The first Sunday in March of 2003 the people moved into the new building, with an attendance of seventy-seven.</p><p>Several years have passed and many things have changed, yet many have stayed the same. There is still a sweet fellowship among the people, there are still souls being saved, and there is still a desire to see growth in the church. At the end of February, 2008, Pastor Story said his farewell as the Pastor, and Pastor Summers will be carrying on the work of the Lord.</p>
