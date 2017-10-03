@@ -1,11 +1,11 @@
 ---
 ID: 6936
-post_title: Joseph James July Prayer Letter
+post_title: July 2017 Prayer Letter
 author: Media Ministry
 post_excerpt: ""
 layout: post
 permalink: >
-  http://fbcchelsea.org/joseph-james-july-prayer-letter/
+  http://fbcchelsea.org/july-2017-prayer-letter/
 published: true
 post_date: 2017-07-03 11:59:30
 ---
