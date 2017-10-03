@@ -7,6 +7,6 @@ layout: post
 permalink: >
   http://fbcchelsea.org/joseph-james-july-prayer-letter/
 published: true
-post_date: 2017-10-03 11:59:30
+post_date: 2017-07-03 11:59:30
 ---
 <p>[embeddoc url="http://fbcchelsea.org/wp-content/uploads/2017/10/July_2017_Newsletter.pdf" download="all" viewer="google"]</p>
