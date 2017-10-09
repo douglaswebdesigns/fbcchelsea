@@ -9,4 +9,4 @@ permalink: >
 published: true
 post_date: 2017-10-09 09:34:54
 ---
-<iframe width="100%" height="315" src="https://www.youtube.com/embed/videoseries?list=PLVf-FYDdY597EVctgJHh5ai3uYO8CjyzZ" frameborder="0" allowfullscreen></iframe>
+<p><iframe src="https://www.youtube.com/embed/videoseries?list=PLVf-FYDdY597EVctgJHh5ai3uYO8CjyzZ" width="100%" height="480" frameborder="0" allowfullscreen="allowfullscreen"></iframe></p>
